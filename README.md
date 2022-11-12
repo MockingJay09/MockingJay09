@@ -52,3 +52,8 @@ Take a Look At My Inventory Items(**_repository_**), and see what you Like!!!
 Hmmm... Looks like we have to go in our sperate ways. I shall give you my spell for contacting me, just in case ;)
 
 Contact Spell : **_a.karhunneshkrishna@gmail.com_**
+
+Farewell _Traveler_,**_WE SHALL MEET AGAIN_**<br />
+
+
+![](https://media.tenor.com/Aoz9_qKxxiIAAAAM/cry-sad.gif)
